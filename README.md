@@ -4,7 +4,7 @@
 
 • 📊 I am a data analyst and economics nerd
 
-• 🌱 I am currently building a portfolio of projects that interest me
+• 🌱 I am currently building a project portfolio
 
 • 🧠 I am interested in risk analytics, AI, and machine learning
 
