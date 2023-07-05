@@ -2,7 +2,7 @@
  	
 • 😃 My name is Madison Costanza
 
-• 📊 I am a data analyst and economics nerd
+• 📊 I am a data analyst and econ nerd
 
 • 🌱 I am currently building a project portfolio
 
