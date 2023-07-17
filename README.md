@@ -8,4 +8,5 @@
 
 • 🧠 Topics of interest are climate risk and consumer spending trends
 
-• 📫 Let's get in touch! You can reach me on LinkedIn at www.linkedin.com/in/madison-costanza or via email at madisonccostanza@gmail.com
+• 📫 Let's get in touch! Connect on LinkedIn here: www.linkedin.com/in/madison-costanza or via email at madisonccostanza@gmail.com. 
+
