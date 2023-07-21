@@ -2,7 +2,7 @@
  	
 • 😃 My name is Madison Costanza
 
-• 📊 I am a data/statistical analyst passionate about generating insights to solve complex problems
+• 📊 I am a data/statistical analyst with a passion for deriving insights and problem-solving
 
 • 🌱 I am currently building a project portfolio using Python, Tableau, and R
 
