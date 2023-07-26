@@ -6,7 +6,7 @@
 
 • 🌱 I am currently building a project portfolio using Python, Tableau, and R
 
-• 🧠 Topics of interest are climate risk and consumer spending trends
+• 🧠 Topics of interest are climate/insurance risk, project risk, and consumer spending trends
 
 • 📫 Let's get in touch! Connect on LinkedIn here: www.linkedin.com/in/madison-costanza or via email at madisonccostanza@gmail.com. 
 
